@@ -1,4 +1,4 @@
-Olá! Me chamo Maria Eduarda, tenho 19 anos e essa sou eu:
+Olá! Me chamo Maria Eduarda, tenho 19 anos e aqui vai um pouquinho sobre mim:
 
 - aluna do Bacharelado em Ciência e Tecnologia na UFABC;
 
